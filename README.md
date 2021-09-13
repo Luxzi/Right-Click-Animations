@@ -7,4 +7,4 @@ You are free to include this in other themes as you wish, but please credit me!
 
 ![Second](https://i.imgur.com/qFZD1IX.gif)
 
-### If you have any issues or questions feel free to make a issue on GitHub or to contact me via Twitter DMs
+### If you have any issues or questions feel free to make a issue on GitHub or to contact me via my business email (luxzi@pm.me)
